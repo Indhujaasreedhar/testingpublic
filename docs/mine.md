@@ -1,1 +1,1 @@
-![Test](/docs/.document360/assets/Kovai%20wallpaper.png)
+![Test](/docs/.document360/assets/Kovai wallpaper.png)
